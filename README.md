@@ -4,7 +4,7 @@ London, UK
 
 peadarcoyle@gmail.com
 
-github.com/springcoil – twitter.com/springcoil
+www.github.com/springcoil – www.twitter.com/springcoil
 
 Profile
 =======
